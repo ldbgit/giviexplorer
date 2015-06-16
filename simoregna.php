@@ -1,8 +1,9 @@
 se io qua scrivo???
 erfc
 egrdfvsdgrtg
-stdgtrgrtr
-rstggbfgb
+questo non ci va!!!
+fidati!
 
+ci
 
-ciao
+io sto giocando come mi pare
