@@ -10,8 +10,7 @@ io sto giocando come mi pare
 
 merda!!!!! ijrtiogjoirthh
 pirlota che non sei alro!!!
-merda!!!!! sempre la stessa riga
-merda!!!!! ijrtiogjoirthh
+merda!!!!! ijrtiogjoirthh il difficiile è questa..!!!
 
 
 beh se a me va bene io poi aggiungo e poi ?!?!
@@ -25,3 +24,5 @@ e qui  : css
 sdàapskd a èpksafad
 afèojasfas
 }
+
+agiung
